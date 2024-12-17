@@ -59,11 +59,11 @@ And here's the best part: OvO is lightweight and doesn't require a high-end devi
 
 *Want to level up your OvO skills? Here are some tips to help you dominate the game:*
 
-1. ** Master the Controls:**  Take a few minutes to get comfortable with the basic movements. Knowing when to jump, slide, or stop can make all the difference.
-2. ** Stay Focused:**  OvO is a game of split-second decisions. Distractions can cost you a level, so make sure to play in a quiet environment if possible.
-3. ** Practice Makes Perfect:**  If you are unable to beat a level on your first attempt, don't give up. You gain a better understanding of the timing and arrangement with each try.
-4. ** Watch for Patterns:**  Many obstacles in OvO follow a predictable pattern. Observing these can help you plan your moves more effectively.
-5. ** Challenge Yourself:**  Once you've got the hang of it, try setting goals like completing a level without mistakes or beating your previous time.
+1. **Master the Controls:**  Take a few minutes to get comfortable with the basic movements. Knowing when to jump, slide, or stop can make all the difference.
+2. **Stay Focused:**  OvO is a game of split-second decisions. Distractions can cost you a level, so make sure to play in a quiet environment if possible.
+3. **Practice Makes Perfect:**  If you are unable to beat a level on your first attempt, don't give up. You gain a better understanding of the timing and arrangement with each try.
+4. **Watch for Patterns:**  Many obstacles in OvO follow a predictable pattern. Observing these can help you plan your moves more effectively.
+5. **Challenge Yourself:**  Once you've got the hang of it, try setting goals like completing a level without mistakes or beating your previous time.
 
 ## Why OvO Unblocked is Perfect for All Ages?
 
